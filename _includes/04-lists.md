@@ -1,1 +1,12 @@
-Replace this with a list of your favorite things.
+* Yes
+* Yes
+* Yes
+* ITS THE 
+  * DEAD BODY LOOTIN
+  * MUTANT SHOOTIN
+  * VENUS YOUTIN
+  * ROOTIN TOOTIN
+  * LUGER TOTIN
+  * RUGER LOADIN
+  * BULLET THROWING
+  * WAY TOO LONG GRENADE HOLDIN
